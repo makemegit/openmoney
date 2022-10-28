@@ -1,3 +1,3 @@
-Referral link
+Referral link:
 
 https://r.honeygain.me/VECHR97E28
